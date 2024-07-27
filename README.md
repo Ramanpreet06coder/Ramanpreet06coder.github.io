@@ -10,7 +10,7 @@ Our Senior took the class of Peer Ineraction About College.In this class, Studen
 |15-07-2024|Dr.Ravinder Singh|Dr.Ravinder Singh who is Assistant Professor- Physics deliver session on github and how to generate ID on Github with vital technology skills.
 |Dr.Pyare Lal( MCH Paediatric Surgery ) motivational and inspiration speech and encourage the student face the challenging in life with confidence.
 |Mr. Sony Goyal (Founder-MissionCAT) provide the guidance to student regarding achiving future goals and offering practical the direction to our student.
-|Mr.Pancham (ME Student of 4 year) give their session on non-vrbal commmunication and motorcycle club with way of learning and engagement.
+|Mr.Pancham (ME Student of 4 year) give their session on non-varbal commmunication and motorcycle club with way of learning and engagement.
 |16-07-2024|Professor Harjot Kaur Gill  and Professor Rupinder Kaur told the student about the facilities and academic culuture of 
 IT Department.Apart of it,they got tour of the wholw department such as hardware and software lab.
 |17-07-2024|Proffessor Rishi Kapoor |Class of UHV (Unverisal Human Value )  Professor Kapoor explained with  contain example about human value, self exploring 
@@ -32,10 +32,10 @@ imporance of deep learning.Furthermore,SMART(Specific,Measurable,Achievable,Real
 (enhance sense of self) and long-term goal (how to make plan being suceessful in life)
 |Causmic Club| At the first, Our Senior cheer the newly admitted with bhangra. After that, nature is so important in our life and how we save from 
 pollution with showig video.
-|23-07-2024||PEER INTERACTION ABOUT CANVA|Our Senior took this class told us the introduction of canva and how to use canva in diffferent way especially graphiclike template and poster.
+|23-07-2024||PEER INTERACTION ABOUT CANVA|Our Senior took this class told us the introduction of canva and how to use canva in diffferent way especially graphic like template and poster.
 |Dr.Sandeep Kaur Gill|(Assistant Professor )|MATHS|Dr.Gill gave their lecture on Integration and gave the question on these topic to student for practice.
 |24-07-2024|Mr.Gauravdeep Singh|(Social Entrepreneur, Founder Chairmanand Initators of Change) shared their chilhood memory with students.Mr.Gaurav
-taught them three main things: do not focus on temporary happiness, introductionof self whic means weekness and strenght points and the last point is believe in sharing like sadness.
+taught them three main things: do not focus on temporary happiness, introductionof self which means weekness and strenght points and the last point is believe in sharing like sadness.
 |Er.Lakhveer Singh|(Asssistant Professor) deliver their session on SWAYAM AND how to enroll in various courses and explained the different which
 would beneficial in the upcoming 4-years.
 |CAUSMIC CLUB|Our Senoir gave the session on history, previous student work and function in causmic club and explained extra curricular activities 
