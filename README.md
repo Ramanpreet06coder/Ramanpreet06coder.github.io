@@ -1,4 +1,4 @@
-# Ramanpreet06coder.github.io
+# Ramanpreet06coder.github.iowho natured 
 ## Activity report of Student Iinduction Program 
 
 |09-07-2024|
@@ -11,9 +11,14 @@ Our Senior took the class of Peer Ineraction About College.In this class, Studen
 |Dr.Pyare Lal(MCpractical H Paediatric Surgery ) motivational and inspiration speech and encourage the student face the challenging in life with confidence.
 |Mr. Sony Goyal (Founder-MissionCAT) provide the guidance to student regarding achiving future goals and offering practical the direction to our student.
 |Mr.Pancham (ME Student of 4 year) give their session on non-vrbal commmunication and motorcycle club with way of learning and engagement.
-|16-07-2024|H.O.D Professor K S Maan and Professor Rupinder Kaur told the student about the facilities and academic culuture of 
+|16-07-2024|Professor Harjot Kaur Gill  and Professor Rupinder Kaur told the student about the facilities and academic culuture of 
 IT Department.Apart of it,they got tour of the wholw department such as hardware and software lab.
 |17-07-2024|Class of UHV (Unverisal Human Value )was taken byProfessor Harpal Singh Panu  Professor Rishi Kapoor .He explained with  contain example about human value, self exploring 
 and discuss the understanding of harmony in family.
-|Peer Interaction about technical|  Our senior took this class and explained  about the excel with technology skills.
-|18-07-2024| Professor Harpal Singh Paanu| Pf. Paanu (Professor of Sikh Studies, Guru G obind Singh Chair at Unversial Punjab )told us that 
+|Peer Interaction about technical|  Our senior took this class and explained  about Introduction to Generate AI and  the excel with vtal  technology skills.
+|18-07-2024| Professor Harpal Singh Paanu| Pf. Paanu (Professor of Sikh Studies, Guru Gobind Singh Chair at Unversial 
+Punjab )told us that convey their valuable knowledge and insights to student.Also,Pf.Paanu told us the lecture on the life and teachings of Guru Nanak Dev Ji.
+|Rishi Kapoor|Sir took the classs of UHV and explained the student about understanding of harmony in family and also lecture on the topic of understanding of harmony in the human being 
+( Co-existence of Self and Body ) in which discuss the need and the  response of the Self and Body.
+|Dr.Harwinder Singh|( NCC) and |Er. Jasvir Singh Grewal |(NSS) who nutured our minds and spirits with their expertise and passion in NCC and NSS.
+|19-07-2024|Er. Kanwardeep Kaira|Er.Kaira gave their session on CAMPUS TO CORPORATE 
