@@ -12,10 +12,8 @@ Our Senior took the class of Peer Ineraction About College.In this class, Studen
 |Dr.Pyare Lal( MCH Paediatric Surgery ) motivational and inspiration speech and encouraged the student face the challenging in life with confidence.
 |Mr. Sony Goyal (Founder-MissionCAT) provided the guidance to student regarding achiving future goals and offering practical the direction to our student.
 |Mr.Pancham (ME Student of 4 year) give their session on non-verbal commmunication and motorcycle club with way of learning and engagement.
-|16-07-2024|Professor Harjot Kaur Gill  and Professor Rupinder Kaur told the student about the facilities and academic culuture of 
-IT Department.Apart of it,they did tour of the whole department such as hardware and software lab.
-|17-07-2024|Proffessor Rishi Kapoor |Class of UHV (Unverisal Human Value )  Professor Kapoor explained with  contain example about human value, self exploring 
-and discuss the understanding of harmony in family.
+|16-07-2024|Professor Harjot Kaur Gill  and Professor Rupinder Kaur told the student about the facilities and academic culuture of IT Department.Apart of it,they did tour of the whole department such as hardware and software lab.
+|17-07-2024|Proffessor Rishi Kapoor |Class of UHV (Unverisal Human Value )  Professor Kapoor explained with  contain example about human value, self exploring and discuss the understanding of harmony in family.
 |Peer Interaction about technical|  Our senior took this class and explained  about Introduction to Generate AI and  the excel with vital  technology skills.
 |18-07-2024| Professor Harpal Singh Paanu| Pf. Paanu (Professor of Sikh Studies, Guru Gobind Singh Chair at Unversial 
 Punjab )told us that convey their valuable knowledge and insights to student.Also,Pf.Paanu told us the lecture on the life and teachings of Guru Nanak Dev Ji.
@@ -41,10 +39,6 @@ taught them three main things: do not focus on temporary happiness, introduction
 would beneficial in the upcoming 4-years.
 |CAUSMIC CLUB|Our Senoir gave the session on history, previous student work and functions in causmic club,shared their experiences and explained extra curricular activities 
 which would help boost the confidence and give a chance to respresent ourself in the front of other peers.
-|25-07-2024|Dr.Sandeeep Kaur Gill|(Asistant Professor|(MATHS) Dr. GILL gave their lecture on Integration and derivative. Mam also gave the question fpr practice and taught
-the formula of trigonometry and interartion.
+|25-07-2024|Dr.Sandeeep Kaur Gill|(Asistant Professor|(MATHS) Dr. GILL gave their lecture on Integration and derivative. Mam also gave the question fpr practice and taughthe formula of trigonometry and interartion.
 |Pf.Sukhminder Singh|(Assistant Professor)|(MATHS)Pf.Singh dilverd their lecture on Derivative and gave the sums for practice.
-|26-07-2024|LAST DAY OF INDUCTION PROGRAM 2024|Dr.Kanwalpreeet Kaur Bhatt|(Medication Counsellorand Homepathic Practitioner)|Dr.Bhatt told us the importance aspect of medication and how medication 
-are beneficial in human body such as reducing stress level and depression and helps for relaxing our body.After that,In VALEDICTORY ceremony College Principal Dr.Sehijpal Singh advised them to work
-hard to achieve a milestone lives in life.Also, Students gave their performances of solo dsinging and solo dance . At the end, The Valedictory ceremony was the moment of pride as students was awarded
-for the achievement in different competitions during the Induction Program.
+|26-07-2024|LAST DAY OF INDUCTION PROGRAM 2024|Dr.Kanwalpreeet Kaur Bhatt|(Medication Counsellorand Homepathic Practitioner)|Dr.Bhatt told us the importance aspect of medication and how medication are beneficial in human body such as reducing stress level and depression and helps for relaxing our body.After that,In VALEDICTORY ceremony College Principal Dr.Sehijpal Singh advised them to workhard to achieve a milestone lives in life.Also, Students gave their performances of solo dsinging and solo dance . At the end, The Valedictory ceremony was the moment of pride as students was awardedfor the achievement in different competitions during the Induction Program.
