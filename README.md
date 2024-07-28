@@ -36,10 +36,23 @@ pollution with showig video.
 |Dr.Sandeep Kaur Gill|(Assistant Professor )|MATHS|Dr.Gill gave their lecture on Integration and gave the question on these topic to student for practice.
 |24-07-2024|Mr.Gauravdeep Singh|(Social Entrepreneur, Founder Chairmanand Initators of Change) shared their chilhood memory with students.Mr.Gaurav
 taught them three main things: do not focus on temporary happiness, introductionof self which means weekness and strenght points and the last point is believe in sharing like sadness.
-|Er.Lakhveer Singh|(Asssistant Professor) deliver their session on SWAYAM AND how to enroll in various courses and explained the different which
+|Er.Lakhveer Singh|(Asssistant Professor) deliver their session on SWAYAM and how to enroll in various courses and explained the different which
 would beneficial in the upcoming 4-years.
-|CAUSMIC CLUB|Our Senoir gave the session on history, previous student work and function in causmic club and explained extra curricular activities 
+|CAUSMIC CLUB|Our Senoir gave the session on history, previous student work and functions in causmic club,shared their experiences and explained extra curricular activities 
 which would help boost the confidence and give a chance to respresent ourself in the front of other peers.
-|25-07-2024|Dr.Sandeeep Kaur Gill|(MATHS) Dr. GILL gave their lecture on Integration and derivative. Mam also gave the question fpr practice and taught
+|25-07-2024|Dr.Sandeeep Kaur Gill|(Asistant Professor|(MATHS) Dr. GILL gave their lecture on Integration and derivative. Mam also gave the question fpr practice and taught
 the formula of trigonometry and interartion.
-|Professor Sukhminder Singh|(MATHS) Pf. 
+|Pf.Sukhminder Singh|(Assistant Professor)|(MATHS)Pf.Singh dilverd their lecture on Derivative and gave the sums for practice.
+
+
+
+
+
+
+
+
+
+
+
+
+|Professor Sukhminder Singh|(MATHS) Pf.
